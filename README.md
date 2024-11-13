@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning digital collectibles
 - 💞️ I’m looking to collaborate on spider technologies
 - 📫 How to reach me via gmail: frank20030228@gmail.com
-- 😄 Pronouns: ...
+- 😄 Pronouns: HE
 - ⚡ Fun fact: ...
 
 <!---
